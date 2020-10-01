@@ -1,0 +1,1 @@
+# skillfactory-module-d6-11-shaidulov
